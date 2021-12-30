@@ -1,0 +1,21 @@
+A few of my favorite things, in no particular order or grouping
+- Puppies ❤️
+- Kittens ❤️
+- Coffee ☕
+  - black
+  - strong
+  - bitter
+  - no cream or sugar
+- Dark Chocolate 🍫
+- Sorbet 🍨
+- Cheesecake 
+- Tiramisu
+- Good Food, in general 😋
+- Languages
+  - Portuguese 🇧🇷
+  - French 🇫🇷
+  - Spanish 🌎
+  - Italian :italy: 
+  - Python 
+  - Java
+  - JavaScript
