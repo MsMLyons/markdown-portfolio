@@ -1,1 +1,1 @@
-[My Profile] (https://github.com/MsMLyons)
+[My Profile](https://github.com/MsMLyons)
